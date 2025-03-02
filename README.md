@@ -7,3 +7,6 @@ I also used AI to create my bot profile picture and found a simple gif with the 
 U can have access to it using the Assets file, which I already uploaded.
 
 Enjoy!!
+
+![pixlr-image-generator-42d51035-0956-4801-8f20-a1ce9d9548bf](https://github.com/user-attachments/assets/b5aa1b85-f8a2-49aa-832b-c2b4b3e10abf)
+![3DRobotGIFbyL3SResearchCenter-ezgif com-optimize](https://github.com/user-attachments/assets/5282d070-9e91-49a5-892e-8fd958cb2d68)
